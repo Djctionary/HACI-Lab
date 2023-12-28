@@ -71,7 +71,7 @@
 
 #### 5.1 Changzeng Fu
 
-![1703758698544](C:\Users\Djctionary\Downloads\1703758698544.png)
+![](C:\Users\Djctionary\Downloads\1703758698544.png)
 
 #### 5.2 Hiroshi Ishiguro
 
